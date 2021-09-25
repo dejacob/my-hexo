@@ -4,7 +4,7 @@ Frank is ![](https://s.plusx.cn/plus/immediate/12915250/20190818185008594/AY6A92
 
 we love frank ，we think Frank gave us a chance to succeed
 
-frank fuck you
+
 
 
 
